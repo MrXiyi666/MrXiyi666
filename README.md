@@ -4,3 +4,6 @@
 我的邮箱MrXiyi@outlook.com
 
 我的域名http://federal-square.top/
+
+捐款账号
+![image](https://img1.lookpic.cn/2025/01/06/zanzhu.png)
